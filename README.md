@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FilippovDmytro.
+- 👀 I’m interested working in IT.
+- 🌱 I’m now studying the basics of HTML and CSS, next in line JS.
+- 💞️ I’m looking for cooperation in the areas that I study, more practice is needed.
+- 📫 You can write to me in telegram or viber at +380938705730.
